@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sejal-official11
+- 👋 Hi, I’m Sejal Gupta
 - 👀 I’m interested in learning constantly ans also implement for real experience
 - 🌱 I’m currently learning problem solving
 - 💞️ I’m looking for work with different startups and big tech giants
